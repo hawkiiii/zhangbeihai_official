@@ -11,7 +11,6 @@ _2024年10月06日 11:57_ __ _ _ _ _ _ 湖南  _
 这两天A股大家不知道回没回本，但我知道的是，胡锡进应该很难受。因为
 老胡曾经在相当长的一段时间里，因为炒股被嘲笑为韭菜，老胡不管发什么内容，都有在下面催他更新炒股日记的。现在老胡终于盼来了反攻，却在7月底因为妄议大政方针导致禁言90天，现在肯定急得像瓜田里的猹，抠个手机抓耳挠腮的。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkguSj2neibO0icG8icNVpB9FO4nAFMHCwhtI64Lt4BickYeH1sKtojbtpibqyTictf99BGqbN7svX2EJrfxg/640?wx_fmt=png)
 
   
 
@@ -30,7 +29,6 @@ _2024年10月06日 11:57_ __ _ _ _ _ _ 湖南  _
 大家了解老胡，在舆论场上老不倒翁，铁骑墙派，主打一个实用主义。但是在行情面前，原先当主编的那套长袖善舞左右逢源的语言艺术没有任何用武之地了
 **，亏损就是亏损，像极了数学，做错就是做错，也像极了爱情，不爱就是不爱，** 说什么都没有用。逼得老胡在接受采访时对外喊话，我不卖出就割不到我，  
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkguSj2neibO0icG8icNVpB9FO4nZdkkjRQniad0A153icXSfuFzv3KSPzdqyaOWmEJ9ibHl5AZ87qWTT5AAg/640?wx_fmt=png)
 
   
 
@@ -73,7 +71,6 @@ _2024年10月06日 11:57_ __ _ _ _ _ _ 湖南  _
 胡锡进既不够左，不敢直接指出当下的主要问题在于社会治理能力还有很大进步空间，财富分配不够合理，普通公民的社会博弈能力太弱，又不够右，还保留了一些老媒体人的骨气，不会无条件跪舔公权力的任何做法。在双方都在自己的基本盘阵地相互输出的阵地战格局里，老胡显得无家可归。
 **说句实话，环球时报的主编行政级别是不低的，不但长期开着评论区允许大家公开叫骂侮辱。还良心未泯，能在一小部分时候冒着风险，愿意站出来为人民群众说两句真话实话，虽然这些微博往往最后被删掉，但这也已经超越了绝大多数肉喇叭的水平了。**
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkguSj2neibO0icG8icNVpB9FO4nSBicXEeGs3Z7T4WdBxiagzCcFiagiawjJ2icvsnib5DPIdsApEWjx6orX7MA/640?wx_fmt=png)
 
   
 
@@ -102,7 +99,6 @@ _2024年10月06日 11:57_ __ _ _ _ _ _ 湖南  _
 
 _ Après moi, le déluge  _
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguJ6SeibBKibzRWz8MtJ6AF5GbBbU9EqU08YGdbdibGsaRChV1lQRcCu0oKm3qsYX3H9AzgFPTgjAKibQ/640?wx_fmt=jpeg)
 
 长按二维  码扫描关注
 

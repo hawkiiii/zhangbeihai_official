@@ -28,7 +28,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNGBAuJ63yIdRg5B1LkgqUicYHngmdSPrMlLPsTQr5Om4cHp3OmGcw1dQ/640?wx_fmt=jpeg)
 
 灯红酒绿
 
@@ -40,7 +39,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNtgsL4wO4p7450fnkClRj1IlfmpgdrskH2kEbrDuFFlRlPpJvhxd1icA/640?wx_fmt=jpeg)
 
   
 
@@ -73,7 +71,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQN1Xpbky12TYGx3eBTPqV6FTV0E7yN1FoQj9rKDoNfxzEaIfIHKg2dgA/640?wx_fmt=jpeg)
 
 崔健当年的《一块红布》
 
@@ -87,11 +84,9 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNJnEMciazhlib6mq386gm8teEqZVichfqMNV3OYO7d18icphGXu19BG7e3Q/640?wx_fmt=jpeg)
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNpmp5QMlsNLW20Sqx6utbA5WPnkzdvPajrXSh5We3trjxGhibdWibuPibA/640?wx_fmt=jpeg)
 
 看看这土味封面
 
@@ -116,7 +111,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNnjvq6VaVtLHsLgIhENWr41tjTj9sXC45q5IAao9eAicArTWUmPUfefg/640?wx_fmt=jpeg)
 
 哈尔滨七八十年代图景
 
@@ -132,7 +126,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNfxeIq1ojzHvnjm7BlZ0beZfYX3ibU63xaBs25wicGu0RCH24CBXj3DDA/640?wx_fmt=jpeg)
 
 大庆油田上缴了4061亿元税金  
 
@@ -152,11 +145,9 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNYCfnZMGtIhMCe1QkouG4jAVLyFgicph4iaSpibp1ffLDDHRpL7IwfYWHw/640?wx_fmt=jpeg)
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNhPMQgLFEgsW9wDwzR3UlNMKNib9ibIOxwOQKT1MmUrTNevpdbU37akKw/640?wx_fmt=jpeg)
 
 雷锋和王进喜
 
@@ -170,7 +161,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNUAbqDJ7BO6TfVV1OKT1DHR62kI5WWwfiaHkkm7GuicOXazrqMVa40L0A/640?wx_fmt=jpeg)
 
 航母为什么叫辽宁号
 
@@ -187,7 +177,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNu0pWjHSibcgbicPS8XkKEO4zoyxicUE1VFsCYuYrMpFLjgPZUk9N0be7Q/640?wx_fmt=jpeg)
 
 中国城市化率图表
 
@@ -225,7 +214,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNE4CakYsWsFnTn3lED3yWvWGC8RicEXhTXkKl3TuEJhhy1NpuWvOCNlQ/640?wx_fmt=jpeg)
 
 90年代的迪厅
 
@@ -235,14 +223,12 @@ DISCO！
 
 没啥大变化
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNgOPDMahxwXaXTDjHYNzIkNQpGrf31shwatgxpwACT8KbhXLLLYVHxg/640?wx_fmt=jpeg)
 
 当然那个年代不兴听外语歌曲，而是流行听粤语歌。相较于一个字也听不懂的英语，同为是汉语的粤语至少保留了一定熟悉成分，但作为一种和北方方言差距较大的方言系统，又有着足够的陌生性来创造审美距离，
 **在艺术上说，这叫满足了当时东北社会的期待视野。**
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNuQ3Aj5ZrdupBFMmUlLtuqRhfq9PzFUdtLlHD2fJoqfnKvhxH0tAPhA/640?wx_fmt=jpeg)
 
 梵高的画不被人赏识
 
@@ -262,7 +248,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQN6icqoo2icOFnq8jibKtIBib48LYDicLwJKbM9J6XQAOAfR0bWeIr36t3kPw/640?wx_fmt=jpeg)
 
 上世纪八九十年代的迪厅
 
@@ -276,7 +261,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNr8g41roJnhx9ibBiar14YKoBoQkOGhAXPrygA9v1yx5ibo98r23NJojtA/640?wx_fmt=jpeg)
 
 真正的女权.JPG
 
@@ -284,7 +268,6 @@ DISCO！
 
 虚假的女权.JPG
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNkyqwfLhjLpOVm2g8sROq82XicTSpk2yQxckupFfA0Doe9cYpoZB8frw/640?wx_fmt=jpeg)
 
   
 
@@ -317,7 +300,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNgKr1EqqXMjCVN2O9iceic6enOE5M9a0JC6MjiakS6WF67bUicBunIWiajiaA/640?wx_fmt=jpeg)
 
 老龄化和流失人口
 
@@ -325,7 +307,6 @@ DISCO！
 
 东北经济不跌就不错
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNwH2P7czb5NKMSBdTfWuXltn9EbODQCibBUtlhuOLH9Nrz3y3DtGQJFw/640?wx_fmt=jpeg)
 
 **这和新中国前30年的历史形成了截然对比，40年前这些人来到东北这片土地，40年后他们的子女依旧寻找他们该去的地方，完成了历史的一种循环。**
 
@@ -335,7 +316,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNQTD3IJZYteoiaEoMudiagX26iaaYYmE916IibAHW2mYaZNACsIUYOmJHNw/640?wx_fmt=jpeg)
 
 美国铁锈带的工厂
 
@@ -357,7 +337,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNciavf6fNJtEVibOvKCVq4RDibuibD9iaGh2icmLiagBrQVryIibFKMZD8UwW7g/640?wx_fmt=jpeg)
 
 东北人还有一样秘密武器
 
@@ -385,7 +364,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQN9VX7vCeicux7OmRWMzaIic4Vc9Xmfss7CoWQzR0nbMYbXz5s4XX5MJvA/640?wx_fmt=jpeg)
 
 实际上野狼DISCO
 
@@ -395,7 +373,6 @@ DISCO！
 
 以及再创造
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNqibz1vAlICZqn7I5mOTUT2wsf6JPrDiaMmf0icOw4rUFRxUhOic7Kh0Wkg/640?wx_fmt=jpeg)
 
   
 
@@ -409,7 +386,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNSfFHibuWN0V1GPuuicaRHVHXibNy5EFexUpmyLwJzo96iaOM1VUMwmictlQ/640?wx_fmt=jpeg)
 
 毕加索十一岁的素描
 
@@ -421,7 +397,6 @@ DISCO！
 
 就会陷入无知的自大
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNqz5ndWiaHjVMvZvt8USHhxD11RjOrLD2MDd7ic6j4hrEGznmreXpaW9Q/640?wx_fmt=jpeg)
 
 《毛诗序》说，言之不足，故歌咏之。歌唱本来就是强烈抒情的一种方式，这种可以不注重当下的现实的生活，而对强烈的抒情和个人内心的色彩大加笔墨，这是和现代主义的艺术相呼应相吻合的。
 
@@ -439,7 +414,6 @@ DISCO！
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNCFaibRnnFWPMgZGwNLc3mJDiaib6Zsqua7gAZmdibvhsiaWhf4r2W6qWiaiaA/640?wx_fmt=jpeg)
 
 米勒《播种者》
 
@@ -477,7 +451,6 @@ DISCO！
 
 有关自由，无关风月
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguBasx7VuZQRiaA0KtSR9ZQNqOJ1MDsibKuzFPM8CoSgVAvMAgibsicsmmicsxib7lIXG5tpWsZbOeoBxicA/640?wx_fmt=jpeg)
 
 长按二维  码扫描关注
 

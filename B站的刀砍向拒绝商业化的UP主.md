@@ -8,7 +8,6 @@ _2024年03月20日 18:13_ __ _ _ _ _ _ 湖南  _
 
 去阅读
 
-![](https://mmbiz.qpic.cn/mmbiz_png/sa8NYIcBEImVial2CVicrEibvRcuHd9dGsR5FbWDvtGF70zrec6YoUEvpbwL126BpAwEd4xbia1WB2mSbfM8YIx6icw/640?wx_fmt=png)
 
 **点击 章北海的自然选择  加关注 **
 
@@ -28,7 +27,6 @@ Cost
 第二，是陈睿大张旗鼓的宣布要进行播放时长改革，因为现在的商业环境对b站是很不公平的，短视频平台随随便便制造上百万的播放次数，内容质量中长视频有压倒性的优势，制作难度上有天然的门槛。
 **所以b站必须强调自己的影响力逻辑：我们的播放量虽然不高，但是我们总体对社会的影响巨大。**
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgvbFxHLpEP172At28tDaRhjKYq8gibSmQGtHic82tOBicKnqnxOF5xicT5umTYoPmibrHzJ9g7uYh8kT6g/640?wx_fmt=png)
 
   
 
@@ -73,7 +71,6 @@ B站还是以年轻人，特别是学生为主，除了兜里边确实没有多�
 
 我说实在话，我投入在互联网上的时间和精力，拿去送外卖，我的收入都不会变少。 **事实上我真的在偶尔送点外卖。**
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgvbFxHLpEP172At28tDaRhjhfUUX23rs3HgEnyvicWEYUFEobptJQoGn8poGJDHHAB43MuiaKfBJnmw/640?wx_fmt=png)
 
   
 
@@ -93,7 +90,6 @@ B站还是以年轻人，特别是学生为主，除了兜里边确实没有多�
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgvbFxHLpEP172At28tDaRhjQp3Ts9aH9vs0nVf6OHQFyGEs0ePCLdiaBdMETvIlvIctG8UkgEUUSdQ/640?wx_fmt=png)
 
   
 
@@ -123,7 +119,6 @@ B站还是以年轻人，特别是学生为主，除了兜里边确实没有多�
 
 还有很多，不一一说了
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgvbFxHLpEP172At28tDaRhjEUiajCEpUMxNfyZJem7CNHnDEQtBk4amPYiaRxYPibnhdenHAjQhk1CGg/640?wx_fmt=png)
 
   
 
@@ -166,7 +161,6 @@ B站可能会成为一个大型only fans，免费视频用来引流或者打广�
 
 _ Après moi, le déluge  _
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgsuHB03k8PMAz9BupbFiatibbspBhtCJQtdSle45icHMbib8E8q6B6RkJibn1IUdIibhsBEoTuPiaUiapQYbQ/640?wx_fmt=jpeg)
 
 长按二维  码扫描关注
 

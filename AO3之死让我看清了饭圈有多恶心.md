@@ -8,7 +8,6 @@ _2020年03月01日 19:36_ __ _ _ _ _
 
 去阅读
 
-![](https://mmbiz.qpic.cn/mmbiz_png/WLnQS7Jzsbzqqicvz6iaf1H2WzV0UJibba4PnJo554HscTY6gN68YwI1eOgWzPGK9IWNobkv7bN66bkZsib4AKXFsw/640?wx_fmt=png)
 
 **点击 蓝字加  关注 **
 
@@ -40,7 +39,6 @@ AO3，是Archive Of Our Own的缩写，这是全世界最大的同人小说数�
 
 **其实《水浒》也有广为流传的同人小说，只不过比较见不得光，一般不放在桌面上谈。**
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgsW4n9VRoP0zqTQjDicIW0YH0sJqJsVHH6p8rG2Lla7NM7SVhozO6SUtby9DzdB1W64ibXM46YTicLZg/640?wx_fmt=jpeg)
 
 大唐西域记
 
@@ -58,7 +56,6 @@ AO3，是Archive Of Our Own的缩写，这是全世界最大的同人小说数�
 
 **偏偏有人，要上纲上线，诉诸公权。**
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgsW4n9VRoP0zqTQjDicIW0YHOyDlyZXxGqJBic5Zaz2Vxntj3JbZsKvaA8yhiaPdbFXYG53RKwuap2dQ/640?wx_fmt=jpeg)
 
 一人之下心
 
@@ -72,7 +69,6 @@ AO3，是Archive Of Our Own的缩写，这是全世界最大的同人小说数�
 
 **2月29日，AO3被屏蔽，无法正常访问，这座曾经获得雨果奖的互联网档案馆，无数人的心血和文字，随着一群饭圈粉丝的举报付之一炬。**
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgsW4n9VRoP0zqTQjDicIW0YHDq6dzicByMtQV9MUxh8s9tnDAyORyAdCwuYiawK1ad4BJ1N8UbnkdtnQ/640?wx_fmt=jpeg)
 
 AO3关于网站无法访问的说明
 
@@ -88,7 +84,6 @@ AO3关于网站无法访问的说明
 
 **在巨婴们手里，批判的武器远没有武器的批判来的快速又实际。**
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgsW4n9VRoP0zqTQjDicIW0YHUxjOqap8vyuuEPp5Gf46iaIeCBuIb1p434g9fJaIk0e4KRiaOL6FXDlQ/640?wx_fmt=jpeg)
 
 粉丝领头人
 
@@ -106,7 +101,6 @@ AO3关于网站无法访问的说明
 
 **本质上是弱势个人在强势集体中寻找存在感，破坏、叫嚣、制造冲突，似于初中男生打群架消耗无处发泄的精力，幼稚得很。**
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgsW4n9VRoP0zqTQjDicIW0YHLcQXH2fcNnJyjfkdCBokaiaIwqJ7LnI09WbHop8dX9v2EjCorDuZURQ/640?wx_fmt=jpeg)
 
 今日割五城
 
@@ -134,7 +128,6 @@ AO3关于网站无法访问的说明
 
 **后来的事情你们也知道了，那是人类的灾难。**
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgsW4n9VRoP0zqTQjDicIW0YHgec28Y6JLD66jekuzicU7lFibIoUrYOr2tukibKadyNb8IGB2GkdUJiaGA/640?wx_fmt=jpeg)
 
 奥斯维辛
 
@@ -154,7 +147,6 @@ AO3关于网站无法访问的说明
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgsW4n9VRoP0zqTQjDicIW0YHnG30KHxZDfkxALGvruo7BNyqSYyQ5iamzjgnniaRTibaicQaZxQTuXk59g/640?wx_fmt=jpeg)
 
 举报者洋洋得意
 
@@ -168,7 +160,6 @@ AO3关于网站无法访问的说明
 
 **饭圈粉丝们一边靠潜规则维持偶像的热度，一边又靠明规则攻讦见解不同之人，端起碗吃饭，放下碗骂娘，说的就是这一路人。**
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgsW4n9VRoP0zqTQjDicIW0YHZNmp7OMUhGTxMdqkwbh1RJgayKOgCuNrIbeRSiaqJHwctfiauumGumEQ/640?wx_fmt=png)
 
 论网络暴力
 
@@ -193,7 +184,6 @@ AO3关于网站无法访问的说明
 
 有关自由，无关风月
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguy2ibpzjSu1P5RkGaVuh94CpxMlkvLkpApzcN4bAgWM8ktUHON9w1hM3qIlAsAST4Zeot4lIjZDMg/640?wx_fmt=jpeg)
 
 长按二维  码扫描关注
 

@@ -24,7 +24,6 @@ Tim故意写了一张真实，但是又没那么真实的条件表，比如说�
 
 于是就有一大批人哈气了，小红书上漫山遍野，你们可以去找。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgtm5n6EmQdtSEtiby6hmdwiclfCMUXylMWmJmVprbLWeHZnHFOQNCsGicMRzobew40gDTjIem1Ihp9mw/640?wx_fmt=png)
 
   
 
@@ -218,7 +217,6 @@ Tim往湖里面扔入了一颗石子，却炸出了一圈涟漪，一分钟的�
 
 _ Après moi, le déluge  _
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgtm5n6EmQdtSEtiby6hmdwiclBMwH49JeekGzIgK4lqfl9scqjicuscmeiaMo4qib87ytaibb5B7QiaiczKaA/640?wx_fmt=jpeg)
 
 长按二维  码扫描关注
 

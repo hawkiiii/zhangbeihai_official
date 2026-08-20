@@ -8,7 +8,6 @@ _2020年02月03日 14:31_ __ _ _ _ _
 
 去阅读
 
-![](https://mmbiz.qpic.cn/mmbiz_png/0dCqSXeF6SPurMzZwyqrB1cMtqTFQsUVsxLORAEGrcSZnxZsVv5Cgx472icDGxcibmo17L0Ykibcflka1rb8MpaXg/640?wx_fmt=png)
 
 **点击 蓝字加  关注 **
 
@@ -36,7 +35,6 @@ Problem？
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkguyZD8jjJprkpz4ib8c5PZ2Td9JGXwTMcqqbaxqhgLzsDpwmY3gyVQSgp9ib3A02ClQiaOLWVhjOLvOQ/640?wx_fmt=png)
 
 只有消息
 
@@ -52,7 +50,6 @@ Problem？
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkguyZD8jjJprkpz4ib8c5PZ2TajuVCv5mvVfGL9mVBuiaQgB19N4U0UVhC7ibZQF74zm6dxHCoDKVrmDQ/640?wx_fmt=png)
 
 曾光接受央视采访
 
@@ -79,11 +76,9 @@ Problem？
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguyZD8jjJprkpz4ib8c5PZ2TSJkibDmn0yjWsalXUK1WDiaBcH2JK2h9aVfcdvqlX62v0Gj3DqdnHxTw/640?wx_fmt=jpeg)
 
 李文亮被定性造谣的两张截图
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguyZD8jjJprkpz4ib8c5PZ2TymLcAn7yeaXyC1ryxgZ2BT4taZ0AGeoXJo5aNB8aLCl5eIUA0skHbQ/640?wx_fmt=jpeg)
 
 **  
 **
@@ -104,7 +99,6 @@ Problem？
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguyZD8jjJprkpz4ib8c5PZ2TSQ2MtaQP95cf8JbZKSZTHNo4CFm9dIDKibXwKxvKN55ESVF1llqKKng/640?wx_fmt=jpeg)
 
 李医生的训诫书
 
@@ -114,7 +108,6 @@ SRAS阳性的化验
 
 谁以辟谣的名义造谣？
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguyZD8jjJprkpz4ib8c5PZ2T7ALg8Xj8Ao3dY0Bibz9Jhxk8msqdDDfaA8Vq7Kh9I2uAShCx16BVokQ/640?wx_fmt=jpeg)
 
   
 
@@ -133,7 +126,6 @@ SRAS阳性的化验
 **  
 **
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguyZD8jjJprkpz4ib8c5PZ2TibrX4ncHs0Q2eCIsIkyMJKgexyqB4TQficG6Qqr4AnnpngA5CLbalA7A/640?wx_fmt=jpeg)
 
 1979年刑法的口袋罪
 
@@ -159,7 +151,6 @@ SRAS阳性的化验
 
 **很显然，武汉的训诫毫无根据**
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguyZD8jjJprkpz4ib8c5PZ2TD0VdX6kwgsaSdyEJ06K8bBolnWSmXmL6gibjaVoZvq8pMD6BhlHUia8A/640?wx_fmt=jpeg)
 
 李文亮前后对比
 
@@ -167,7 +158,6 @@ SRAS阳性的化验
 
 接受采访都要靠打字
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguyZD8jjJprkpz4ib8c5PZ2T8ibdIvqTUgF0TyNbsk3iceDF1gafRy6cPicmQ0SdmIOGW3EU6erMrpbFQ/640?wx_fmt=jpeg)
 
 这8名人最理想的处理方案是登记他们的信息，在有证据之后对其说法进行判断，如果说法错误，才可以进行处罚。
 
@@ -195,7 +185,6 @@ SRAS阳性的化验
 
 有关自由，无关风月
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguyZD8jjJprkpz4ib8c5PZ2TPonrSa2M3vpOUflE5b23Ticc4W7IC6al0ZCpicADh73ibCgiaxwZsViaygg/640?wx_fmt=jpeg)
 
 长按二维  码扫描关注
 

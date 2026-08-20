@@ -28,7 +28,6 @@ _2025年12月21日 22:02_ __ _ _ _ _ _ 湖南  _
 
 **顺便发视频造谣，用仙术看出我的真身是一只黄鼠狼，并称自己已经除掉了黄鼠狼。**
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgtEud0V4agrfyXSznOos5I7KVSlHzOPmkROxxvkOCvN9oa6ekdHKXFOeYoNyj9ibEkG8acQ6ib5rGAg/640?wx_fmt=png)
 
   
 
@@ -48,7 +47,6 @@ _2025年12月21日 22:02_ __ _ _ _ _ _ 湖南  _
 
 ****
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgtEud0V4agrfyXSznOos5I7GAbRgD1fzz5ekIwaBUo5fN8t4hXtm4K7PU9nB1XibYRHRxZ7lIcYJ8Q/640?wx_fmt=png)
 
   
 
@@ -106,7 +104,6 @@ _2025年12月21日 22:02_ __ _ _ _ _ _ 湖南  _
 
 我一向觉得米哈游的游戏吃相难看，角色很贵，但如果你要找这种骗子来用这种方式消费，那我觉得真不如去给原神充两个648，求你了，看到这种人挣钱比我亏钱都难受。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgtEud0V4agrfyXSznOos5I7rMzAL5YWmXd6SFWhh8jHEewD8cTwGyf8Ujc3WOexMfIo6r7jzD0iaWw/640?wx_fmt=png)
 
 那至于丁炎易人要这么多钱有什么用呢？很遗憾的是，丁先生现在没有公开自己的关注列表，不过我们在前一波互联网的余波当中，还是找到了很多蛛丝马迹的。
 
@@ -153,7 +150,6 @@ _2025年12月21日 22:02_ __ _ _ _ _ _ 湖南  _
 
 你到底对我们一个社会主义国家的无神论社会有多大的不满意，既然如此造谣于公安机关？
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgtEud0V4agrfyXSznOos5I7kYicqib12bVTeZIqlUibbVicsN6OwoqOTibficZPIbicdylhibQbnKrUkLMShQ/640?wx_fmt=png)
 
   
 
@@ -167,7 +163,6 @@ _2025年12月21日 22:02_ __ _ _ _ _ _ 湖南  _
 只是其他的身份，大家也能看得出来，所谓的这套正一天师道玄裔弟子 香港道协特聘符法教师 奇门遁甲实战派师傅 炎易斋国学文化·传媒工作室
 祐福珠宝易学顾问联合创始人。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgtEud0V4agrfyXSznOos5I7VhPn9XicC3peYyDQGwlNZZfwp7bE3ZexkrL3ico3VvvprUlNdw4ohOfQ/640?wx_fmt=png)
 
   
 
@@ -199,13 +194,11 @@ _2025年12月21日 22:02_ __ _ _ _ _ _ 湖南  _
 
 他不仅告诉你怎么避免被骗，还给相信玄学的上当受骗者做心理安抚，说钱被骗走不怪你，要怪就怪那些骗子手法太黑。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgtEud0V4agrfyXSznOos5I7OJy4TmEicvPgDzLU5NicU2aa4USMw8sTBsLQ971jsZ5Hlowpk1PvyhdA/640?wx_fmt=png)
 
   
 
 比如在2025年5月的这期视频里，他揭发，这类玄学骗子有一个公用的套路就是宣传自己有特殊能力，能够让别人命不久矣，丁炎易人对此有深刻的批判，指出他就是炫耀自己有这个权限，至于有没有，他说有就是有，实际上这些都是似是而非，就等着一些有心理定势的观众对号入座，然后通过一些筛选手段，选出来最好骗的人，制造服从性，掉进陷阱里。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgtEud0V4agrfyXSznOos5I7KKFfT8ObhN2syuuPl4ibrspRxjR1BUeqJkwO2UUANV9VPKtk7bDPaIw/640?wx_fmt=png)
 
   
 
@@ -247,7 +240,6 @@ _2025年12月21日 22:02_ __ _ _ _ _ _ 湖南  _
 
 _ Après moi, le déluge  _
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgtEud0V4agrfyXSznOos5I7Ua6ythibS8Q7u710bCibnPBjMh5vUksl87OuZnM2vT9q8V20AuXCibLtw/640?wx_fmt=jpeg)
 
 长按二维  码扫描关注
 

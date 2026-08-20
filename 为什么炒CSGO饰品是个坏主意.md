@@ -30,7 +30,6 @@ CSGO最近进行了调整，原先只能开箱子获得的刀皮和手套，现�
 
 **我的CSGO当年还是花了几十块买的，靠掉落的手套箱子不光回了本，甚至还是近年来牢章做的最成功的一笔投资，真的在十年内翻了几倍。**
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgs4UDJ3kQxYuBr58ib1LWlAkBtPDwMhXMF1rAAAeoyEicicbwShibXbQuUibNAfwUjB5kRmM06DbvmK6tg/640?wx_fmt=png)
 
   
 
@@ -184,7 +183,6 @@ CSGO最近进行了调整，原先只能开箱子获得的刀皮和手套，现�
 
 _ Après moi, le déluge  _
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgs4UDJ3kQxYuBr58ib1LWlAkcibJ5suaYJRSzjQfqR5qK1N0P9o9ZXn82naVpfEiaUgpFY7roWtszjFw/640?wx_fmt=jpeg)
 
 长按二维  码扫描关注
 

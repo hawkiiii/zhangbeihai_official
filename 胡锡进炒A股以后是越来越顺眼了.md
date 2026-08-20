@@ -8,7 +8,6 @@ _2024年01月31日 17:34_ __ _ _ _ _ _ 河北  _
 
 去阅读
 
-![](https://mmbiz.qpic.cn/mmbiz_png/sa8NYIcBEImVial2CVicrEibvRcuHd9dGsR5FbWDvtGF70zrec6YoUEvpbwL126BpAwEd4xbia1WB2mSbfM8YIx6icw/640?wx_fmt=png)
 
 **点击 章北海的自然选择  加关注 **
 
@@ -38,7 +37,6 @@ hello，各位观众朋友们，大家好，这里是北海，1月30号的行情
 总之，胡锡进炒股刚开始的那段时间看起来还是很幸运的，他出来炒股，被资本市场认为是国家释放的一个信号，股市从6月底到7月初有一波3%左右情绪上的小反弹。在最初的一个多月时间里，市场平稳，略带一些反弹，
 **老胡也喜滋滋地在微博上分享自己的战报，认为股市很像震荡上行。**
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgukEMIIaRKnYXVYlhS7RAAOfcEf7LAkCUe4Zzyy0oP05C7eA1d42vlXCwYG5GqrLPnV0A5WCErdIw/640?wx_fmt=png)
 
   
 
@@ -61,7 +59,6 @@ hello，各位观众朋友们，大家好，这里是北海，1月30号的行情
 
 8月下旬，胡锡进透露，自己已经加仓到30万，浮亏5000多，而到了9月初，老胡加仓的速度更加迅猛。已经加到47万，接近于满仓。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgukEMIIaRKnYXVYlhS7RAAOlqt1V8iaB5h30JggTTjOnkNphQJMzLammqPNcC2oToYGlYicOj7VM3aA/640?wx_fmt=png)
 
   
 
@@ -92,7 +89,6 @@ hello，各位观众朋友们，大家好，这里是北海，1月30号的行情
 
 就在昨天，证监会补上了转融通的漏洞，胡锡进说了一堆好话，最后怯生生的补上半句，还是要多给舆论正当批评的空间。其形象已经有点可怜了。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgukEMIIaRKnYXVYlhS7RAAOvWMXsZk65nzHYVJmlpEm3p6ic2NtxibSBghCXlI1cAJy5QRCwdKIOySQ/640?wx_fmt=png)
 
   
 
@@ -145,7 +141,6 @@ hello，各位观众朋友们，大家好，这里是北海，1月30号的行情
 而这些公司上市IPO，无疑是借了注册制的红利，证监会自己的说法，实行注册制，
 **绝不是放任不管、一放了之。唉，似乎一年以前也听过类似的话，后来的结果大家也知道了。**
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgtZkU00TcXQDsEDMnQjFSkPsdpTbo5DGTDUqjLZgltvuiaSqlKicPNLhbPWha8Os6W7UKYU4yibVIoQw/640?wx_fmt=png)
 
   
 
@@ -194,7 +189,6 @@ _它把宗教虔诚、骑士热忱、小市民伤感这些情感的神圣发作�
 
 **胡锡进只得像马科长一样求饶，声称：觉得自己需要减少针对股市的发言频度，至少这一两周。至于是不想说了，还是不能说了，我暂时蒙在鼓里。**
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkguRZNrT1PFEjHNJibZzZB5ShG4B7rLT9Zgv7a5OSC2GM2TMpzQNNctHZemZMQ87oBQWY0RSVOicKbRw/640?wx_fmt=png)
 
   
 
@@ -208,7 +202,6 @@ _它把宗教虔诚、骑士热忱、小市民伤感这些情感的神圣发作�
 
 _ Après moi, le déluge  _
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgtt6eQwMUpnO8UzVnalVEN4Uk0zEEQorTP3ibCV5iaz0VrejaBgXkjDx8NIgicKOnkx1Kic0w2k6JgBibw/640?wx_fmt=jpeg)
 
 长按二维  码扫描关注
 

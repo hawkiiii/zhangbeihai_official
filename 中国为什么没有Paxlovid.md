@@ -8,7 +8,6 @@ _2023年01月10日 18:33_ __ _ _ _ _ _ 河北  _
 
 去阅读
 
-![](https://mmbiz.qpic.cn/mmbiz_png/sa8NYIcBEImVial2CVicrEibvRcuHd9dGsR5FbWDvtGF70zrec6YoUEvpbwL126BpAwEd4xbia1WB2mSbfM8YIx6icw/640?wx_fmt=png)
 
 **点击 章北海的自然选择  加关注 **
 
@@ -39,8 +38,6 @@ Industry
 
 **那么进一步，更核心的问题是，为什么开发出Paxlovid卖到全世界的不是我们？**
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgu3aucFmntX5TeKlKaFoWH5iaHsvx1J3akB5AhLlDVKmcViashJkCPECmwevXia4TUpQFbhmF3JfiaJ8g/640?wx_fmt=png)
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgu3aucFmntX5TeKlKaFoWH5o6SDL94N4B79YlwvjorJDJIeVPIJ8kX9AQ63ibu9Xnmv0g4f8Edz3Gw/640?wx_fmt=jpeg)
 
 注意，下图为上半年数据
 
@@ -70,7 +67,6 @@ Industry
 
 **不怕比别人差，怕的是比别人差还不努力。**
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgu3aucFmntX5TeKlKaFoWH5AApemjeSHoqXo92PwSomfyzXFMIsvk26licbUI9dM6OaxcYwL4O0yBw/640?wx_fmt=png)
 
 @时代数据
 
@@ -110,8 +106,6 @@ Industry
 
 **这种环境怎么能开发的出来救命的新药品？**
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgu3aucFmntX5TeKlKaFoWH5IbQH1le0fotQ5wznqyibdQHVUapdMcUg2yLMR6oIkvOsDahHwI8aenA/640?wx_fmt=png)
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkgu3aucFmntX5TeKlKaFoWH50284rOtjiaO6fe5UQFIHINfdVYauzdxnahibJa9P91XyW2OyU4vibKwEQ/640?wx_fmt=png)
 
 还在跌
 
@@ -137,7 +131,6 @@ Industry
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgu3aucFmntX5TeKlKaFoWH5RKEvLaJwnqRGJ88KMic7ToiabdqDchVPUmaOb9Xvvf1BEWZCmlmbaoeQ/640?wx_fmt=jpeg)
 
 常俊标
 
@@ -162,7 +155,6 @@ Industry
 
 有关自由，无关风月
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkgurZszHFAYnRvdOzVVG0TbwwotITaP6ovVr6Fd8IoBPz1917mhHYLLulsicVqjaXBMfgWAbd2ZNLZw/640?wx_fmt=jpeg)
 
 长按二维  码扫描关注
 

@@ -8,7 +8,6 @@ _2024年05月04日 20:03_ __ _ _ _ _ _ 湖南  _
 
 去阅读
 
-![](https://mmbiz.qpic.cn/mmbiz_png/sa8NYIcBEImVial2CVicrEibvRcuHd9dGsR5FbWDvtGF70zrec6YoUEvpbwL126BpAwEd4xbia1WB2mSbfM8YIx6icw/640?wx_fmt=png)
 
 ** 章北海的自然选择  加关注 **
 
@@ -40,7 +39,6 @@ _《后浪》是一个合格的商业宣传片，试图塑造B站青年人高消
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkguTXet1EpQB3G6z7TkibHwEmISExVD9RMX1lE9I8q63YBblCoxFWxhGw6OEeNeQ6TEfiaSdGjiaicviaWA/640?wx_fmt=png)
 
 **几年过去了，现在的我也有几分理解B站身不由己**
 ，一方面要向广告主展现自己的商业价值,另一方面，后浪这部宣传片也是任务。央视新闻、光明日报、中国青年报、环球时报……只要看一眼这些联合发布单位的名头就能知道，很多东西不方便说明白，也没法说明白。何冰老师把三句话能解释清楚的东西说了三分钟。整个视频不上不下卡在正中间，这也是B站这个上海企业的真实写照。但我还是要夸奖一下B站，至少他们没因为我批评过他们而给我发律师函，有些狼性企业真的会这么做。
@@ -93,7 +91,6 @@ B站汇集了中国受教育水平最高的一代年轻人，得益于此，他�
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkguTXet1EpQB3G6z7TkibHwEmlCXggwlrA47nFrvnD6ITqeENyICdz94oMPIPcF68BLzDbROfHtDLkg/640?wx_fmt=png)
 
 我们必须承认一个事实就是b站作为娱乐网站也是有门槛的，在短视频平台已经简化到上下滑动和双击屏幕就能完成所有必要操作的今天，十几秒几十秒就能带来的视觉快感，影响范围已经从智人扩展到了整个灵长类。而最能代表b站的知识区的历史调研室，闲木鱼，动辄二三十分钟的视频，更长一点的学院派可能做到一个多小时，B站上这些优质视频内容不是谁都能消化的，只有经受过水准线以上教育的年轻人能够理解，并且悦纳这些内容，将这些UP主推到整个平台最崇高的位置。
 
@@ -104,7 +101,6 @@ B站汇集了中国受教育水平最高的一代年轻人，得益于此，他�
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkguTXet1EpQB3G6z7TkibHwEmCLQTsvwVZiax57YPZBA7X0JvfQEVQqGcYjTVX9fLJbYNVs7jhZpG7ibg/640?wx_fmt=png)
 
 哪怕在b站骂人都很有门槛，在我实名认证以后，评论区有个朋友把id改的和我的实名很接近，把头像改成我的肖像，借此来羞辱我。这个行为看似简单，但实际融合了对实名机制的利用，对ID审查的规避，以及在我一个小时的视频里面找到最夸张的表情包的能力。你几乎不可能在互联网和任何一个体量接近的社区里找到这种创造力，它体现着这个社区的年轻人思想和智慧的活跃。
 
@@ -133,7 +129,6 @@ B站汇集了中国受教育水平最高的一代年轻人，得益于此，他�
 
   
 
-![](https://mmbiz.qpic.cn/mmbiz_png/CA6BicApkkguTXet1EpQB3G6z7TkibHwEmsiaynHNeibCJXRRT1g8fdDB7Q0ibXUS0IZwicG4oibKqiaib8ib0CrfSM60IKA/640?wx_fmt=png)
 
 我们可以这样下一个结论，只有具备了这种特质，才能正确地使用青年人特有的正义感和使命感，成为一个合格的现代公民。你可以在这个有三亿年轻人的平台上,利用热血和正义感,暂时蒙蔽所有人，我也是普通人，也会一次又一次的被暂时欺骗，但不要想永远欺骗这个平台上的所有人。因为这个平台的年轻人和他们推选出的UP主会自己找到答案。社区的深度内容和优质用户相辅相成。
 
@@ -149,7 +144,6 @@ B站汇集了中国受教育水平最高的一代年轻人，得益于此，他�
 
 _ Après moi, le déluge  _
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/CA6BicApkkguTXet1EpQB3G6z7TkibHwEm4YUDeeOh8AGKf6icOWwc8p6BPMuA50vF5IRQqicEvsA8ddlNuICXNz0A/640?wx_fmt=jpeg)
 
 长按二维  码扫描关注
 
